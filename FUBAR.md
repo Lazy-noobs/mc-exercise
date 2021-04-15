@@ -1,1 +1,1 @@
-Hello team, I think our group name is hilarious!
+Hello team,i think the team shouldnt have listened to me on the name
